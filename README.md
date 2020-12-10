@@ -1,2 +1,2 @@
 # ollysuperlebed.github.io
-Проект Ц
+В дискорд!
